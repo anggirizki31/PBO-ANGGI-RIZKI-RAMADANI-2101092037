@@ -1,0 +1,2 @@
+Zakki191022.Latihan1
+anggi19oktober2022.Latihan1
